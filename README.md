@@ -1,2 +1,2 @@
 # CNXTos
-#://THeoe #://THeeCoNoMyoFeVeRyoNe❌$://THeeCoNoMyoFeVeRyoNe❌#://THeeXCHaNGeoFeVeRyTHiNG❌$://THeeXCHaNGeoFeVeRyTHiNG
+#://THeoe❌$://THeoe #://THeeCoNoMyoFeVeRyoNe❌$://THeeCoNoMyoFeVeRyoNe❌#://THeeXCHaNGeoFeVeRyTHiNG❌$://THeeXCHaNGeoFeVeRyTHiNG
